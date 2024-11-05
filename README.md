@@ -1,2 +1,4 @@
 Hi this is the Bluesheed Corporation , there is a few things you 9need-=to know before using this resources, it's happened that you're releases are preschedule's
 through the re-schedulers and other's may be using the other instance's for Shareware software or new intended software's ....     
+
+<img src= ".https://www.bing.com/ck/a?!&&p=32fb6ec93e0b03d894bf2adec53aa7b5e71da97a195cfe58595b84d2e235d3e0JmltdHM9MTczMDc2NDgwMA&ptn=3&ver=2&hsh=4&fclid=2e707e98-217b-6c3b-1a90-6b9d20f86d91&u=a1L2ltYWdlcy9zZWFyY2g_cT1VbWJyZWxsbGElMjBpbWdhZ2VncyZGT1JNPUlRRlJCQSZpZD0zNEY2RTIxNUE4NzhFQkI5RjU0RTU0M0EzNTczREJERDdCREQwMkM4&ntb=1" ahref= "https://www.bing.com/ck/a?!&&p=32fb6ec93e0b03d894bf2adec53aa7b5e71da97a195cfe58595b84d2e235d3e0JmltdHM9MTczMDc2NDgwMA&ptn=3&ver=2&hsh=4&fclid=2e707e98-217b-6c3b-1a90-6b9d20f86d91&u=a1L2ltYWdlcy9zZWFyY2g_cT1VbWJyZWxsbGElMjBpbWdhZ2VncyZGT1JNPUlRRlJCQSZpZD0zNEY2RTIxNUE4NzhFQkI5RjU0RTU0M0EzNTczREJERDdCREQwMkM4&ntb=1" </img>
